@@ -9,3 +9,7 @@ The day began with English proficiency Test at 9:30 A.M and then Maths proficien
 DAY 3(2 August 2025)
 
 The day began with expert lecture by Dr.Jaswinder Singh who taught us about discipline, healthy habits and good mindset in student's life. He performed a couple of physics experiments and then expert lecture by Dr.Priya Darshani Maam
+
+DAY 4(4 August 2025)
+
+The day began with expert lecture by Dr.Priya Darshni who taught us harmony with the environment and society and ethical responsibility as future engineers.Then there is a motivational talk by Gautam sir who shared his personal story of pursuing motorsports,motivating students to follow their unique passions.Then the Causmic Club show the Club creative and technical activities and to explore their talents.Then there is peer interaction activities,fun games,open Q&A and discussion with seniors and faculty helped new students settle in and build connections.
